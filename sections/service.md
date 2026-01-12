@@ -1,6 +1,5 @@
 ## Service & Related Professional Activities
 
-* Gateway Project
-* Boy Scouts of America
-* Anti-fascists in Archæology
-* University of Chicago Alumni Network
+* Divico Security, Project Manager, Dec 2019 – Present
+* Divico Security, Assistant Accountant, Oct 2017 – Nov 2019
+* Divico Security, Internship Trainee, Jul 2017 – Aug 2017
